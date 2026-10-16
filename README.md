@@ -9,5 +9,6 @@ kesan saya selama mengikuti INTRIVIA 2026 sangat menyenangkan karena mendapatkan
 
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 Sejauh ini, saya merasa senang bisa menjadi bagian dari Cluster ini karena mendapatkan banyak pengalaman baru, bertemu teman-teman baru, dan belajar bersama
+
 ## Harapan Kuliah 
 Harapan saya selama kuliah adalah bisa belajar dengan baik, mendapatkan banyak ilmu dan pengalaman baru, serta mengembangkan kemampuan diri baik dalam bidang akademik maupun nonakademik.
